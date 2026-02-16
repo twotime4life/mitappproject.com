@@ -1,1 +1,1 @@
-My App for MIT app inventing contest
+i quit pls do NOT look into this </3
